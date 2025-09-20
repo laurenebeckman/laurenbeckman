@@ -1,6 +1,6 @@
 👋 Hi, I’m @laurenbeckman
 
-👋 I am a spunky chemical engineer and law student intrigued by the crossover of energy, tech, business, and law.
+✨ I am a spunky chemical engineer and law student intrigued by the crossover of energy, tech, business, and law.
 
 🪢 My focus is to weave my passions in chemical engineering, aviation, economics, finance, and law.
 
