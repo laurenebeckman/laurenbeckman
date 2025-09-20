@@ -1,10 +1,11 @@
 👋 Hi, I’m @laurenbeckman
 
-I’m currently pursuing a B.S. Chemical Engineering with a focus in clean energy.
+👋 I am a spunky chemical engineer and law student intrigued by the crossover of energy, tech, business, and law.
 
+🪢 My focus is to weave my passions in chemical engineering, aviation, economics, finance, and law.
+
+🔑 My goal is to develop and protect nuanced, informed, and inclusive energy solutions, locally and globally.
 My interest is in dovetailing STEM with humanities by intertwining my passions in Chemical Engineering, Economics and Finance, and Intellectual Property Law. 
-
-Although I'm not pursuing CompSci, I would like to gain background knowledge on the subject. Maybe I'll start a side project or two!
 
 <!---
 laurenbeckman/laurenbeckman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
