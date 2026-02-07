@@ -1,4 +1,4 @@
-👋 Hi, I’m @laurenbeckman
+👋 Hi, I’m @laurenebeckman
 
 ✨ I am a spunky chemical engineer and law student intrigued by the crossover of energy, tech, business, and law.
 
