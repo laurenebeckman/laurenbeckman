@@ -4,7 +4,7 @@ Hi, I’m @laurenebeckman. thanks for being here--it's good to see you! :P
 
 🚀 I also like doing sidequests. (On here are some of them.) 
 
-📖 every so often, I remember to write about them on my substack, but... currently I read (a lot), so I short form post on X instead. 
+📖 every so often, I remember to write about them on my substack, but... currently I read (a lot), so I tend to post on X instead. 
 
 📱 I'll get back to writing soon, but for now you can check out my social links and see what I'm usually up to. 
 
