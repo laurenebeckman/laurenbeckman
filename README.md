@@ -2,7 +2,7 @@ Hi, I’m @laurenebeckman. thanks for being here--it's good to see you! :P
 
 ✨ I am a spunky chemE and law student who's curious (especially about energy, tech, business, and law).
 
-🚀 I also like doing sidequests. (On here are some of them.) 
+🚀 because I'm curious, I really like sidequests. (On here are some of them.) 
 
 📖 every so often, I remember to write about them on my substack, but... currently I read (a lot), so I tend to post on X instead. 
 
