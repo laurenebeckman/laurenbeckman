@@ -1,6 +1,6 @@
 Hi, I’m @laurenebeckman. thanks for being here--it's good to see you! :P
 
-✨ I am a spunky chemical engineer and law student who's curious about in energy, tech, business, and law.
+✨ I am a spunky chemE and law student who's curious (especially about in energy, tech, business, and law).
 
 🚀 I also like doing sidequests. (On here are some of them.) 
 
