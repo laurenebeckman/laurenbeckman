@@ -1,18 +1,18 @@
-Hi, I’m @laurenebeckman. thanks for being here--it's good to see you! :P
+Hi, I'm @laurenebeckman 👋 thanks for being here!
 
-✨ I am a spunky chemE and law student who's curious (especially about energy, tech, business, and law).
+✨ ChemE + law student curious about energy, tech, IP, and where they intersect.
 
-🚀 because I'm curious, I really like sidequests. (On here are some of them.) 
+🚀 I learn by doing — on here you'll find side projects that live somewhere between 
+   professional development and genuine obsession.
 
-📖 every so often, I remember to write about my quests on my substack, but... currently I read (a lot), so I tend to post on X instead. 
+🌐 Currently: building [laurenebeckman.com](https://laurenebeckman.com) — 
+   a home for my writing, recipes, and photography.
 
-📱 I'll get back to writing soon, but for now you can check out my social links and see what I'm usually up to. 
+🤖 Also tinkering: an IP law x posting assistant (coming soon)
 
-❔ that's all about me! what about you? if this sounds cool, lmk you saw this and let's connect. 
-
-thanks again, and see you around. 
+📬 Always happy to connect with curious people. find me on LinkedIn or X!
 
 <!---
-laurenbeckman/laurenbeckman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+laurenebeckman/laurenbeckman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
