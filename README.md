@@ -8,7 +8,7 @@ Hi, I'm @laurenebeckman 👋 thanks for being here!
 🌐 Currently: building [laurenebeckman.com](https://laurenebeckman.com),
    a home for my writing, recipes, and photography.
 
-🤖 Also tinkering: an IP law x posting assistant (coming soon)
+🤖 Also tinkering: an IP law X posting assistant (coming soon)
 
 📬 Always happy to connect with curious people. find me on LinkedIn or X!
 
